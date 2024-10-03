@@ -1,4 +1,4 @@
-##DIA D
+## DIA D
 
 *[Enlace a la otra página](Normandia.md)
 
