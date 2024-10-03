@@ -31,6 +31,13 @@ Cerca de 25.000 hombres de la 50ª división británica aterrizaron en la playa 
 ![Gold Beach](assets/gold-beach_1c4d30bb.jpg)
 
 
+# Juno beach
+El objetivo de la 3ª división canadiense era asegurar la playa de Juno y unirse con las fuerzas británicas en la playas de gold hacia el oeste y Sword hacia el este. Los mares agitados retrasaron el desembarco y la marea creciente redujo el ancho de la playa, lo que produjo que mucho de los vehículos y el equipo transportado quedara encallado en la arena. Juno estaba fuertemente defendido y las bajas fueron acusadas, especialmente entre las tropas de la primera oleada de infantería que trato de desembarcar. A la medianoche, los canadienses aún no se habían unido con los británicos en Sword, sin embargo habían despejado la playa, avanzado varios kilómetros tierra adentro uniéndose a los británicos en Gold.
+
+![Juno Beach](assets/juno-beach_ef2a5e38.jpg)
+
+
+
 
 
 
