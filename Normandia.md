@@ -37,7 +37,12 @@ El objetivo de la 3ª división canadiense era asegurar la playa de Juno y unirs
 ![Juno Beach](assets/juno-beach_ef2a5e38.jpg)
 
 
+# Sword beach
 
+El mal tiempo y la fuerte resistencia alemana obstaculizaron el asalto de la 3ª división británica sobre la playa de Sword, la más oriental de las playas. Las crecientes mareas y la geografía del área de asalto crearon un frente angosto, causando congestión y demoras, y dificultando el desembarco del apoyo blindado necesario para el avance hacia el interior. Aunque la 3º división repelió con éxito un contraataque alemán, no logró tomar la ciudad de Caen, de gran importancia estratégica y su objetivo clave para el Día D. La captura de Caen se convirtió en un punto esencial de la estrategia británica en las semanas posteriores al Día D y la ciudad no estuvo completamente ocupada hasta mediados de julio.
+
+
+![Sword Beach](assets/sword-beach_9839207a.jpg)
 
 
 
