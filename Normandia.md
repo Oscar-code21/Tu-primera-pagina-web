@@ -2,4 +2,4 @@ Día D es un término usado genéricamente por los militares aliados en la Segun
 
 El día original para el desembarco se había fijado para el 5 de junio de 1944, pero las malas condiciones meteorológicas y marítimas hicieron que el comandante supremo de los Aliados, Dwight David Eisenhower, la aplazara hasta el 6 de junio, dándoles más tiempo para ensayar sus movimientos. Debido a ello esta última fecha se conoce popularmente como el pequeño día D.
 
-![En Pleno desembarco](assets/legolasportada_31dj.jpg)
+![En Pleno desembarco](assets/descarga.jpeg)
