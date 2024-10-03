@@ -20,4 +20,4 @@ Más de 23.000 hombres de la 4ª división de infantería de los Estados Unidos 
 
 Las tropas de las divisiones de infantería 1ª y 29ª de los Estados Unidos aterrizaron en la playa de Omaha el 6 de junio de 1944. Omaha fue la más defendida de las áreas de asalto y las bajas, que ascendieron a cerca de 3000 en las filas de los aliados, fueron más altas que en cualquier otra playa. Los bombardeos aéreos y navales aliados preliminares no lograron eliminar los puntos fuertes de defensa a lo largo de la costa y los estadounidenses tuvieron dificultades para despejar los obstáculos de la playa. La experimentada 352ª división alemana de infantería participó en el entrenamiento anti-invasión en la zona y pudo reforzar las unidades de defensa costera. A pesar de estos desafíos, los estadounidenses pudieron ganar un pequeño punto de apoyo en la playa al final del día. En la cercana Pointe du Hoc, también los Rangers estadounidenses completaron un costoso asalto a los emplazamientos de cañones alemanes en lo alto del acantilado.
 
-![Omaha Beach](assets/omaha-beach_e82055b2.jpg)
+![Omaha Beach](assets/gold-beach_1c4d30bb.jpg)
