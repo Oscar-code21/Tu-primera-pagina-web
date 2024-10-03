@@ -1,4 +1,4 @@
-<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<<# 
+# El dia D 
 
 el 6 de junio de 1944, más conocido como el Día D, durante el transcurso de la Segunda Guerra Mundial, las fuerzas aliadas lanzaron la mayor invasión anfibia y aerotransportada de la historia de la guerra en la operación nombrada en clave como Overlord.
 Los desembarcos aliados en las playas de Normandía marcaron el comienzo de una larga y costosa campaña para liberar al noroeste de Europa de la ocupación nazi. En la mañana del día D, tropas de tierra desembarcaron en cinco playas de asalto: Utah, Omaha, Gold, Juno y Sword en lo que fue la operación de carácter naval complementaria desarrollada en el marco global de la operación Overlord, nombrada en clave como operación Neptuno. Al final del día, los Aliados se habían establecido en tierra y podían comenzar el avance hacia Francia. Cada playa fue un desafío diferente. Fueron estas:
